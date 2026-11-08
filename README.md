@@ -1,3 +1,5 @@
+![Christi Dixon STEM Education Banner](Christi%20Dixon%20STEM%20Education%20Banner.png)
+
 # Hi, I'm Christi! 👋
 
 ### STEM Education | Computer Science | AI Integration
