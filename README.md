@@ -1,4 +1,4 @@
-![Christi Dixon STEM Education Banner](Christi%20Dixon%20STEM%20Education%20Banner.png)
+![Christi Dixon STEM Education Banner](Christi%20Dixon_%20STEM%20Education%20and%20Innovation.png)
 
 # Hi, I'm Christi! 👋
 
